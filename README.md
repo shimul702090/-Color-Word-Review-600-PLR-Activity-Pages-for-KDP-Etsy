@@ -1,0 +1,1 @@
+# -Color-Word-Review-600-PLR-Activity-Pages-for-KDP-Etsy
